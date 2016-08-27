@@ -1,6 +1,6 @@
 # hello-world
 
 What language is thine, O sea?  
-The language of enternal question.  
+The language of eternal question.  
 What language is thy answer, O sky?  
-The language of enternal silence.  
+The language of eternal silence.  
